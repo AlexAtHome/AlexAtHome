@@ -1,4 +1,4 @@
-### Hi there 👋
+### i use arch btw ( ͡° ͜ʖ ͡°)
 
 <!--
 **AlexAtHome/AlexAtHome** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
